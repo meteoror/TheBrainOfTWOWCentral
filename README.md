@@ -1,4 +1,4 @@
 # TheBrainOfTWOWCentral
 The Brain of TWOW Central
 
-wow this is public now cool
+I DID NOT MAKE THIS BOT !!!!!!!! this bot was made by dark im just screwing around with it
